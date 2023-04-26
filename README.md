@@ -1,4 +1,8 @@
+                                                                         NEW HACKS WEEKLY!!!
+
+
 #Blooket-Hacks
+
 Hello There!
 ABOUT BLOOKET-
 My name is Blake Batsch!(My last name is pronounced batch but spelled like Batsch)
