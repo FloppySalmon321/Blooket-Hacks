@@ -4,8 +4,8 @@
 #Blooket-Hacks
 
 Hello There!
-ABOUT BLOOKET-
 My name is Blake Batsch!(My last name is pronounced batch but spelled like Batsch)
+ABOUT BLOOKET-
 If you don't know what Blooket.com is...Then you should try it out!It is a free studying web game!It's not only studying though,you also play fun games
 with it.These hacks are meant to have fun with,not to destroy the game.If you don't know how to add these to the Blooket, then follow these instructions-
 
